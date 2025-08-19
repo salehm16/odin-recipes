@@ -1,0 +1,1 @@
+Photo by  Dotdash Meredith Food Studios
